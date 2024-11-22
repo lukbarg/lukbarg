@@ -19,7 +19,7 @@ Who is honest man love to do hard work.<br> I have a passion for learning and sh
 ✅ Photoshop / Illustrator <br>
 ✅Buisnessman <br>
 
-[<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/youngcoder-suvo)  
+[<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/lukbarg)  
 
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=shovoalways)](https://github.com/ryo-ma/github-profile-trophy)
