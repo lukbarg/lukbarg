@@ -1,6 +1,6 @@
 
 ## Hi, I'm Luk Barg👋
-(https://scontent.fjsr11-1.fna.fbcdn.net/v/t39.30808-6/467843676_1323531145500153_4569800990960517924_n.jpg?stp=dst-jpg_s1080x2048&_nc_cat=105&ccb=1-7&_nc_sid=833d8c&_nc_eui2=AeFXPckIdIIVF2uvDCAVIJQHhms6miFrlE6GazqaIWuUTkK7AHkdppgIKcDR4NWdyvZlC-Rq9VXSzmEyqt5oyc5U&_nc_ohc=YTt6nSepizkQ7kNvgHlDd1T&_nc_zt=23&_nc_ht=scontent.fjsr11-1.fna&_nc_gid=AyWFoSsY6bw_-gnhmqpUn-l&oh=00_AYCVcx-zezX5Xvf8RCKS3uep2pnpkVdE2PrpSCZbHc0zOg&oe=6745EED5)
+![](https://scontent.fjsr11-1.fna.fbcdn.net/v/t39.30808-6/467843676_1323531145500153_4569800990960517924_n.jpg?stp=dst-jpg_s1080x2048&_nc_cat=105&ccb=1-7&_nc_sid=833d8c&_nc_eui2=AeFXPckIdIIVF2uvDCAVIJQHhms6miFrlE6GazqaIWuUTkK7AHkdppgIKcDR4NWdyvZlC-Rq9VXSzmEyqt5oyc5U&_nc_ohc=YTt6nSepizkQ7kNvgHlDd1T&_nc_zt=23&_nc_ht=scontent.fjsr11-1.fna&_nc_gid=AyWFoSsY6bw_-gnhmqpUn-l&oh=00_AYCVcx-zezX5Xvf8RCKS3uep2pnpkVdE2PrpSCZbHc0zOg&oe=6745EED5)
 <p>
 👑 I am Buisnessman <br>
 🖊️ Love to doing work <br> 
